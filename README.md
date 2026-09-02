@@ -1,0 +1,2 @@
+# wgzinhokkj-
+Meus script
